@@ -6,4 +6,4 @@
 <p align="center"> 
     <img src="https://file.garden/aWE03JjPDTWM5GMO/tumblr_fc5052b66937b95f20b3c90bddb73a33_ed1fa431_2048.png"/>
 <h6 align="center">
-    <img src="https://files.catbox.moe/01bkfu.png"/><img src="https://files.catbox.moe/wuzzr1.png"/> all @crennyceo
+    <img src="https://files.catbox.moe/01bkfu.png"/><img src="https://files.catbox.moe/wuzzr1.png"/><img src="https://files.catbox.moe/wi4t0p.webp"/> all @crennyceo
