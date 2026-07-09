@@ -11,4 +11,4 @@
 <p align="center">
     <a href="https://rentry.co/pupleon">rentry</a>    +   <a href="https://adaata.atabook.org/">‎‎atabook</a> 
 <h6 align="center">
-    <img src="https://files.catbox.moe/01bkfu.png" width="330" /><img src="https://files.catbox.moe/sl9r7c.png" width="330" /><img src="https://files.catbox.moe/wuzzr1.png" width="330" /><img src="https://files.catbox.moe/wi4t0p.webp" width="330" /> all @crennyceo
+    <img src="https://files.catbox.moe/01bkfu.png" width="330" @crennyceo
