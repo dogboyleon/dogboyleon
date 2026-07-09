@@ -1,7 +1,7 @@
     
 　　　　　　　　　　　　 　　 　?? ![](https://komarev.com/ghpvc/?username=dogboyleon&color=6a83bd&style=plastic&label=bullets) ... scroll down !
 
-<image align="right" width="350" height="350" alt="Image" src=https://files.catbox.moe/oomeuf.gif> 
+<image align="left" width="350" alt="Image" src=https://files.catbox.moe/oomeuf.gif> 
 
 ⠀ ࣪ㅤㅤㅤㅤ︵ֺ︵  ㅤ ㅤcall me either ada or milla! ,,, leon kennedy yume ,,, c+h ALWAYS! ,,, dnc ponies !? ^_^
 <p align="center">
