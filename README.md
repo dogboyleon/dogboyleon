@@ -1,7 +1,7 @@
     
 　　　　　　　　　　　　 　　 　?? ![](https://komarev.com/ghpvc/?username=dogboyleon&color=6a83bd&style=plastic&label=bullets!)
 
-<image align="left" width="350" alt="Image" src=https://files.catbox.moe/oomeuf.gif> 
+<image align="left" width="390" alt="Image" src=https://files.catbox.moe/oomeuf.gif> 
 
  ㅤ. ㅤcall me either ada or milla!
  
